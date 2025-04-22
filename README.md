@@ -1,4 +1,4 @@
-#👩🏻‍💻 Nathalia Gabriela 
+#👩 Nathalia Gabriela 
 
 Estudante dedicada em busca de oportunidades de trabalho na área de
 Tecnologia, visando aplicar meus conhecimentos acadêmicos e habilidades
